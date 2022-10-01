@@ -1,5 +1,15 @@
 # Rezepte
 
+- [Kuru Fasulye](#kuru-fasulye)
+- [Tofu Steak](#tofu-steak)
+- [Geschmorter Tofu](#geschmorter-tofu)
+- [Kichererbsen-Curry](#kichererbsen-curry)
+- [Vegan BLT Sandwich](#vegan-blt-sandwich)
+- [Erdnuss-Protein-Riegel](#erdnuss-protein-riegel)
+- [Hummus](#hummus)
+- [Marco's Kichererbsen-Burger](#marcos-kichererbsen-burger)
+
+
 ## Kuru Fasulye
 
 Türkischer Bohneneintopf
@@ -221,7 +231,7 @@ https://youtu.be/vUp9zD_QsfI?t=265
 
 
 
-## Marco's Kichererbsen-Burger
+## Marcos Kichererbsen-Burger
 
 Tja.
 
