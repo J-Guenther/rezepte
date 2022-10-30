@@ -8,6 +8,7 @@
 - [Erdnuss-Protein-Riegel](#erdnuss-protein-riegel)
 - [Hummus](#hummus)
 - [Marco's Kichererbsen-Burger](#marcos-kichererbsen-burger)
+- [Tahini Pasta](#tahini-pasta)
 
 
 ## Kuru Fasulye
@@ -253,3 +254,39 @@ Tja.
 - Mit Kartoffelstampfer den Mist zerstampfen
 - Buletten formen (reicht für genau 2)
 - Anbraten und Burger bauen
+
+
+
+## Tahini Pasta
+
+Arabisch geil
+
+### Zutaten
+- 400 g Nudeln (100 g pro Portion Rohgewicht)
+- 3 EL gutes Olivenöl
+- 2 Zwiebeln, fein gehackt 
+- 2 Knoblauchzehen
+- 6 EL Tahina (Gerne mit vier EL Tahine starten und dann herantasten. Je nach Marke kann es unterschiedlich sein)
+- 1 EL Zitronensaft 
+- 0,5 TL Salz 
+- Messerspitze Pfeffer
+- Messerspitze Chili 
+- Messerspitze Muskatnuss
+- 2-4 Kellen von dem Nudelwasser 
+- 150 g Cherrytomaten 
+- Handvoll frische Petersilie
+
+### Zubereitung
+- Gesalzenes Nudelwasser aufsetzen (2 1/2 EL Salz auf 3.5 L Wasser) und Nudeln reingeben wenn es koch
+- Zwiebeln fein hacken
+- In Olivenöl andünsten
+- Knoblauch pressen/reiben/ schneiden und dazu
+- Herdplatte von Pfanne ausschalten und Resthitze nutzen, oder sehr niedrig schalten
+- Tahini in die Pfanne geben zusammen mit Zitronensaft
+- Mit etwas Salz und Pfeffer würzen (nicht zu viel Salz nehmen, da gesalzenes Nudelwasser noch dazu kommt. Lieber nachsalzen)
+- Chili und Muskatnuss dazu geben
+- Nach und nach insgesamt 2-4 Kellen dazu geben, damit die Soße cremiger wird
+- Dann Nudeln da rein und vermischen
+- Am Ende Cherrytomaten dazu und Petersilie
+
+
